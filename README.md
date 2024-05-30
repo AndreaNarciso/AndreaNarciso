@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AndreaNarciso, a BA student at Sapienza University of Rome
 - 👀 I’m interested in Assyriology, Archaeology of Western Asia and Third Millennium civilizations
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning digital assyriology and scientific photography 
+- 💞️ I’m looking to collaborate on under-studied Ancient Near Eastern Languages
 - 📫 Mail me: narciso.2004018@studenti.uniroma1.it
 - ⚡ Fun fact: ...
 
